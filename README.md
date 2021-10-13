@@ -1,0 +1,1 @@
+# 3.2-Whitepaper---Dicas-para-definicao-dos-OKRs
